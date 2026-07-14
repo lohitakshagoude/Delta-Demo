@@ -1,6 +1,3 @@
-# Delta-Demo
-It is for Practice
-
-# Likitha
-She is a fairy
+# HELLO
+MY BITCH ASS NIGGGAS
 
